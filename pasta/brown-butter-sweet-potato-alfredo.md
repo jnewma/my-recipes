@@ -23,4 +23,5 @@ How to brown butter: place butter in a skillet on medium heat. Immediately begin
 
 
 PepperJack loves Brown Butter Sweet Potato Alfredo
-![](http://i.imgur.com/e63XsAo.jpg)
+
+![](http://i.imgur.com/vIGnr.gif)
