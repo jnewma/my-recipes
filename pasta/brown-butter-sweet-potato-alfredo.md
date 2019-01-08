@@ -10,8 +10,8 @@
 * 1 3/4 cup water, divided
 * 1 cup freshly grated Parmesan cheese
 * 1 pound dried spaghetti pasta, cooked according to the directions on the box
-* 1/4 tsp cayenne pepper, more or less depending on heat preference
-* Salt and pepper to taste
+* 1/4 tsp cayenne pepper, more or less depending on heat preference - (maybe try using paprika instead?)
+* Salt and pepper to taste 
 
 ## Instructions
 * Bring a pot of water to a boil and add the cubed sweet potatoes and cook until fork tender. Carefully place sweet potatoes into a blender and puree until smooth.
