@@ -20,3 +20,4 @@
 
 ## Recipe Notes
 How to brown butter: place butter in a skillet on medium heat. Immediately begin whisking it. It'll start to foam and within 2-3 minutes, brown bits will start showing up at the bottom. At this point in time, I usually will take the skillet off the heat and start swirling the butter around in the pan in the air so it doesn't quickly go from brown to burned. Once you see a nice brown color in the butter (and start smelling the amazingness), you've achieved brown butter awesomeness!
+More brown butter!
