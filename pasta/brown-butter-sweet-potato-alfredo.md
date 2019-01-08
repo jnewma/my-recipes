@@ -10,7 +10,7 @@
 * 1 3/4 cup water, divided
 * 1 cup freshly grated Parmesan cheese
 * 1 pound dried spaghetti pasta, cooked according to the directions on the box
-* 1/4 tsp cayenne pepper, more or less depending on heat preference
+* 1/4 tsp cayenne pepper, more or less depending on heat preference, (Use paprika instead)
 * Salt and pepper to taste
 
 ## Instructions
@@ -20,4 +20,10 @@
 
 ## Recipe Notes
 How to brown butter: place butter in a skillet on medium heat. Immediately begin whisking it. It'll start to foam and within 2-3 minutes, brown bits will start showing up at the bottom. At this point in time, I usually will take the skillet off the heat and start swirling the butter around in the pan in the air so it doesn't quickly go from brown to burned. Once you see a nice brown color in the butter (and start smelling the amazingness), you've achieved brown butter awesomeness!
+
 More brown butter!
+
+
+PepperJack loves Brown Butter Sweet Potato Alfredo
+
+![](http://i.imgur.com/vIGnr.gif)
