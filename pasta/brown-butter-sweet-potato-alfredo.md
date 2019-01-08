@@ -10,7 +10,7 @@
 * 1 3/4 cup water, divided
 * 1 cup freshly grated Parmesan cheese
 * 1 pound dried spaghetti pasta, cooked according to the directions on the box
-* 1/4 tsp cayenne pepper, more or less depending on heat preference
+* 1/4 tsp cayenne pepper, more or less depending on heat preference, (Use paprika instead)
 * Salt and pepper to taste
 
 ## Instructions
